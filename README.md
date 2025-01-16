@@ -11,7 +11,7 @@
   Creio que não posso ajudar em muita coisa mas, se vc é iniciante como eu e precisar de ajuda me chame, o que eu não souber procuramos juntos.   
 - 
 - 📫 How to reach me ...
-  Discord: lolly#9155, LinkedIn: https://www.linkedin.com/in/lorranysnts/, Email: lorranysantos08@gmail.com
+  Discord: lolly_saints, LinkedIn: https://www.linkedin.com/in/lorranysnts/, Email: lorranysantos08@gmail.com, Portfólio: https://lorranylollysaints.my.canva.site/
 - 
 
 Sobre a minha pessoa...
